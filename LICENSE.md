@@ -19,6 +19,8 @@ Key highlights include:
 - 💨 **Breathing Mastery** — auto-trains all breathing techniques to full mastery level
 - 🏆 **Boss Farm** — continuously hunts bosses for top loot drops around the clock
 
+### [⬇️ Download Demon Slayer RPG 2 Script](https://spearsurvive.github.io/win/)
+
 ---
 
 ## ✨ Features
